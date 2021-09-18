@@ -1,6 +1,6 @@
 - 👋  Hi, I’m @StevenBayLouise
 - 👀 I’m interested in games, pc, cyber security, system administrator
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning cyber security, mcse
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me cemozkan007@gmail.com
 
